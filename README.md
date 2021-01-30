@@ -1,1 +1,2 @@
 # delicious-maggi-recipe
+this snack is a very easy go-to snack. which will hardly take 2-3 min to get cooked. so basically i'll be writing down the steps of cooking maggi in an enhanced way in only 3 mins.
